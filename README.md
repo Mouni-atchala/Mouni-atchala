@@ -32,7 +32,7 @@ She/Her
 
 ## ⚡ Fun Fact
 
-I love experimenting with new recipes in my free time!
+I love experimenting with new websites in my free time!
 
 
 <!--
